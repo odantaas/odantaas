@@ -6,4 +6,4 @@
 ## Você pode entrar em contato comigo 📫
 00001114453699sp@al.educacao.sp.gov.br
 
- - ![https://tenor.com/pt-BR/view/winston-gif-27177732](link)
+ - ![https://tenor.com/pt-BR/view/winston-gif-27177732](https://tenor.com/pt-BR/view/winston-gif-27177732)
